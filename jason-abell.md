@@ -1,0 +1,7 @@
+## Jason Abell
+
+- I am from the Pacific Northwest.
+- Low and slow smoked ribs.
+- I like to read and dink around with computer stuff.
+- My favorite color is black.
+- I'm adding another line
